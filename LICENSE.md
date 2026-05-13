@@ -1,4 +1,4 @@
-# 
+# Enhance Avast Security for macOS with Avast Security for macOS ultimate Plugin: ransomware-shield & encryption, the #1 plugin. Includes ransomware-shield and encryption for a
 
 
 
